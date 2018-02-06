@@ -1,3 +1,3 @@
 # drikkeyoghurt
 
-hey du er sød pige
+du klam
